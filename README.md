@@ -1,1 +1,2 @@
-![Alt Text](https://tenor.com/view/plsjessie-seonghwa-crazy-seonghwa-energetic-seonghwa-reaction-gif-26683950)
+![alt tag](https://pin.it/415AB3AG0)
+haaiilooo!!!! yoomy or rikki present!＼(^_^)／
