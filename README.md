@@ -1,6 +1,7 @@
-https://www.youtube.com/watch?v=Vv4mdNcly6A&list=RDMMVv4mdNcly6A&start_radio=1
-stream above link ^ they need more recognition. xayden will be the 5th gen IT boy trust 
-  -  no more gifs.. it got taken down TT
+https://www.youtube.com/watch?v=Vv4mdNcly6A&list=RDMMVv4mdNcly6A&start_radio=1 stream link video <- 
+
+ [![](https://biscuit.crd.co/assets/images/gallery42/28364565.gif?v=cc1c6dfa)](https://rentry.co/is5brv7s)  click here! 
+  -  no more gifs.. it got taken down TT 
   -  check out my links though its all same infos (im changing it soon)
   -  looking for P1WON AND CZENNIES MOOTS PLEASE IM BEGGING OR ANY BG FANS!!!! screammss
   -  pls be friends with me im extremely nonchalant and calm like my new character
